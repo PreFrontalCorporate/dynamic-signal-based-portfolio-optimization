@@ -46,7 +46,7 @@ MIT License.
 
 ## Author
 
-Your Name - [yourwebsite.com](https://yourwebsite.com)
+Santiago de Jesus Villalobos-Gonzalez - ✉️ prefrontalcorporate@gmail.com 📞 +1 (510) 298-8218
 
 ---
 
